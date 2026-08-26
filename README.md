@@ -25,7 +25,7 @@ $\color{#65C4F1}{\textsf{ALSO ME}}$
 [@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx)</sup>ㅤㅤㅤㅤㅤㅤㅤ<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <sup>[@aheartwellending](https://github.com/aheartwellending)ㅤ
 [@7-TRIALS](https://github.com/7-TRIALS)ㅤ
-[@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)</sup> ㅤㅤㅤㅤㅤㅤㅤ<br>
+[@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)</sup>ㅤㅤㅤㅤㅤㅤㅤㅤ<br>
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
