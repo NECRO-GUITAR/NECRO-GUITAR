@@ -18,7 +18,7 @@ $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\co
 <p align="center">
 <sub>$\color{#65C4F1}{\textsf{ALSO ME}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@j777ckpot](https://github.com/j777ckpot)ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@j777ckpot](https://github.com/j777ckpot)ㅤ
 [@memories-and-dreams](https://github.com/memories-and-dreams)ㅤ
 [@slimeccl](https://github.com/slimeccl)ㅤ
 [@gee-way](https://github.com/gee-way)ㅤ
