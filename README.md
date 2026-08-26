@@ -22,7 +22,7 @@ $\color{#65C4F1}{\textsf{ALSO ME}}$
 [@memories-and-dreams](https://github.com/memories-and-dreams)ㅤ
 [@slimeccl](https://github.com/slimeccl)ㅤ
 [@gee-way](https://github.com/gee-way)ㅤ
-[@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx)</sup>ㅤㅤㅤㅤㅤㅤ<br>
+[@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx)</sup>ㅤㅤㅤㅤㅤㅤㅤ<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ <sup>[@aheartwellending](https://github.com/aheartwellending)ㅤ
 [@7-TRIALS](https://github.com/7-TRIALS)ㅤ
 [@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)</sup><br>
