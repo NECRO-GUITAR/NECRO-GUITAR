@@ -16,16 +16,16 @@ $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\co
 <p align="center">
 <sub>⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</sub><br>
 <p align="center">
-<sub>$\color{#65C4F1}{\textsf{ALSO ME}}$
+$\color{#65C4F1}{\textsf{ALSO ME}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ [@j777ckpot](https://github.com/j777ckpot)ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ <sub>[@j777ckpot](https://github.com/j777ckpot)ㅤ
 [@memories-and-dreams](https://github.com/memories-and-dreams)ㅤ
 [@slimeccl](https://github.com/slimeccl)ㅤ
 [@gee-way](https://github.com/gee-way)ㅤ
-[@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx) ㅤ <br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@aheartwellending](https://github.com/aheartwellending)ㅤ
+[@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx)</sub> ㅤ <br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>[@aheartwellending](https://github.com/aheartwellending)ㅤ
 [@7-TRIALS](https://github.com/7-TRIALS)ㅤ
-[@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)<br>
+[@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)</sub><br>
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
