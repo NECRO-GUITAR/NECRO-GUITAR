@@ -2,6 +2,9 @@
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
+<img src="https://files.catbox.moe/9leojf.gif" width="~" height="50" align="center" hspace="0" alt="guitar"/><br>
+<sub>⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</sub><br>
+<p align="center">
 <img src="https://api.visitorbadge.io/api/visitors?path=NECRO-GUITAR&label=spirits&labelColor=000000&countColor=000000&style=flat"> <br>
 ㅤ<br>
 $\color{#65C4F1}{\textsf{SAL, SALLY}}$ <sup>$\color{#265766}{\textsf{OR}}$</sup> $\color{#65C4F1}{\textsf{EVAN}}$ <sup>$\color{#265766}{\textsf{+ OTHER}}$</sup><br>
