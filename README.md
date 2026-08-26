@@ -30,7 +30,7 @@ $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\co
 ㅤ<br>
 ㅤ<br>
 <p align="center">
-<img src="https://files.catbox.moe/zt3lre.png" width="100" height="~" align="center" hspace="0" alt="guitar"/>
+<img src="https://files.catbox.moe/zt3lre.png" width="50" height="~" align="center" hspace="0" alt="guitar"/><br>
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
