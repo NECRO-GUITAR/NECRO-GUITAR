@@ -5,6 +5,7 @@
 <img src="https://api.visitorbadge.io/api/visitors?path=NECRO-GUITAR&label=spirits&labelColor=000000&countColor=000000&style=flat"> <br>
 ㅤ<br>
 $\color{#65C4F1}{\textsf{SAL, SALLY}}$ <sup>$\color{#265766}{\textsf{OR}}$</sup> $\color{#65C4F1}{\textsf{EVAN}}$ <sup>$\color{#265766}{\textsf{+ OTHER}}$</sup><br>
+<sup>$\color{#C6C7C2}{\textsf{deceased since 2007}}$</sup><br>
 $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\color{#9E6F7F}{\textsf{masc. terms}}$<br>
 
 <p align="center">
