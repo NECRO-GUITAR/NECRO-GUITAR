@@ -1,12 +1,11 @@
 <p align="center">
 ㅤ<br>
 ㅤ<br>
+<img src="https://api.visitorbadge.io/api/visitors?path=NECRO-GUITAR&label=spirits&labelColor=000000&countColor=000000&style=flat"> <br>
 ㅤ<br>
 <img src="https://files.catbox.moe/9leojf.gif" width="~" height="50" align="center" hspace="0" alt="guitar"/><br>
 <sub>⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</sub><br>
 <p align="center">
-<img src="https://api.visitorbadge.io/api/visitors?path=NECRO-GUITAR&label=spirits&labelColor=000000&countColor=000000&style=flat"> <br>
-ㅤ<br>
 $\color{#65C4F1}{\textsf{SAL, SALLY}}$ <sup>$\color{#265766}{\textsf{OR}}$</sup> $\color{#65C4F1}{\textsf{EVAN}}$ <sup>$\color{#265766}{\textsf{+ OTHER}}$</sup><br>
 <sup>$\color{#C6C7C2}{\textsf{deceased since 2007}}$</sup><br>
 $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\color{#9E6F7F}{\textsf{masc. terms}}$<br>
@@ -30,10 +29,7 @@ $\color{#65C4F1}{\textsf{ALSO ME}}$
 [@7-TRIALS](https://github.com/7-TRIALS)ㅤ
 [@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)</sup> ㅤㅤㅤㅤㅤㅤ<br>
 ㅤ<br>
-ㅤ<br>
-ㅤ<br>
 <p align="center">
 <img src="https://files.catbox.moe/zt3lre.png" width="50" height="~" align="center" hspace="0" alt="guitar"/><br>
-ㅤ<br>
 ㅤ<br>
 ㅤ<br>
