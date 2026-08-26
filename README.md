@@ -22,7 +22,7 @@ $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\co
 [@memories-and-dreams](https://github.com/memories-and-dreams)ㅤ
 [@slimeccl](https://github.com/slimeccl)ㅤ
 [@gee-way](https://github.com/gee-way)ㅤ
-[@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx)<br>
+[@xxXShadowl0rd420Xxx](https://github.com/xxXShadowl0rd420Xxx)ㅤ<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@aheartwellending](https://github.com/aheartwellending)ㅤ
 [@7-TRIALS](https://github.com/7-TRIALS)ㅤ
 [@ZOMBIELOVEJUICE](https://github.com/ZOMBIELOVEJUICE)<br>
