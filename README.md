@@ -13,7 +13,7 @@ $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\co
 <p align="center">
 <img src="https://files.catbox.moe/yqd69w.png" width="666" height="~" alt="banner"><br>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img src="https://files.catbox.moe/zx3aaz.png" width="~" height="40" alt="byi & dni">](https://pronouns.cc/@sally-face)ㅤ[<img src="https://files.catbox.moe/s47ieu.png" width="~" height="40" alt="atabook">](https://sally-face.atabook.org)ㅤ[<img src="https://files.catbox.moe/4cae8v.png" width="~" height="40" alt="straw.page">](https://7-trials.straw.page)ㅤ[<img src="https://files.catbox.moe/ez5szs.png" width="~" height="40" alt="carrd">](https://necro-guitar.carrd.co)ㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img src="https://files.catbox.moe/zx3aaz.png" width="~" height="40" alt="byi & dni">](https://pronouns.cc/@sally-face)ㅤ[<img src="https://files.catbox.moe/ez5szs.png" width="~" height="40" alt="carrd">](https://necro-guitar.carrd.co)ㅤ[<img src="https://files.catbox.moe/s47ieu.png" width="~" height="40" alt="atabook">](https://sally-face.atabook.org)ㅤ[<img src="https://files.catbox.moe/4cae8v.png" width="~" height="40" alt="straw.page">](https://7-trials.straw.page)ㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
 <sub>⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</sub><br>
