@@ -3,8 +3,8 @@
 ㅤ<br>
 <img src="https://api.visitorbadge.io/api/visitors?path=NECRO-GUITAR&label=spirits&labelColor=000000&countColor=000000&style=flat"> <br>
 ㅤ<br>
-<img src="https://files.catbox.moe/9leojf.gif" width="~" height="50" align="center" hspace="0" alt="guitar"/><br>
-<sub>⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</sub><br>
+<img src="https://files.catbox.moe/9leojf.gif" width="~" height="50" align="center" hspace="0" alt="text"/><br>
+<img src="https://files.catbox.moe/fbx6xs.png" width="666" height="~" align="center" hspace="0" alt="divider"/><br>
 <p align="center">
 $\color{#65C4F1}{\textsf{SAL, SALLY}}$ <sup>$\color{#265766}{\textsf{OR}}$</sup> $\color{#65C4F1}{\textsf{EVAN}}$ <sup>$\color{#265766}{\textsf{+ OTHER}}$</sup><br>
 <sup>$\color{#C6C7C2}{\textsf{deceased since 2007}}$</sup><br>
@@ -16,7 +16,7 @@ $\color{#9E6F7F}{\textsf{he/him}}$ <sup>$\color{#C6C7C2}{\textsf{+}}$</sup> $\co
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img src="https://files.catbox.moe/zx3aaz.png" width="~" height="40" alt="byi & dni">](https://pronouns.cc/@sally-face)ㅤ[<img src="https://files.catbox.moe/ez5szs.png" width="~" height="40" alt="carrd">](https://necro-guitar.carrd.co)ㅤ[<img src="https://files.catbox.moe/s47ieu.png" width="~" height="40" alt="atabook">](https://sally-face.atabook.org)ㅤ[<img src="https://files.catbox.moe/4cae8v.png" width="~" height="40" alt="straw.page">](https://7-trials.straw.page)ㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
-<sub>⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</sub><br>
+<img src="https://files.catbox.moe/fbx6xs.png" width="666" height="~" align="center" hspace="0" alt="divider"/><br>
 <p align="center">
 $\color{#65C4F1}{\textsf{ALSO ME}}$
 
